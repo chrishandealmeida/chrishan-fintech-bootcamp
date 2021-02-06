@@ -1,1 +1,2 @@
 # chrishan-fintech-bootcamp
+Hi, my name is Chrishan de Almeida.  I have a B.Comm in accounting and finance from the University of Toronto.  I am currently a manager at RBC.  I would like to either continue moving up within my organization or break off and join/found a startup.  I chose FinTech because it is the next stage of the path that I am currently on.
